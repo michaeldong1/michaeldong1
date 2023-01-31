@@ -7,5 +7,5 @@ I have a Master degree in Bioinformatics and Biostatistics (BIBS), as well as a 
 
 
 How to reach the cat : 
-mickael.dong@imbim.uu.se
+E-mail: mickael.dong@imbim.uu.se
 
